@@ -11,3 +11,8 @@ Typically Offered:
 Fall
 
 
+
+
+![Media Bias Chart](https://github.com/user-attachments/assets/aeec2a75-2d35-418e-9a69-926528835bbf)
+
+
